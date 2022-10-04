@@ -73,10 +73,10 @@ Example:- /set_caption 📕 File Name: {filename}
 » 𝗦𝗢𝗨𝗥𝗖𝗘 𝗖𝗢𝗗𝗘 : <a href=https://t.me/RED_world_hub_v2_bot>𝗥𝗘𝗗 𝐑𝐄𝐍𝐀𝐌𝐄 𝐁𝐎𝐓</a>
 » 𝗛𝗢𝗪 𝗧𝗢 𝗗𝗘𝗣𝗟𝗢𝗬 : <a href=https://chat.whatsapp.com/IKGkvRMCEDb4ocbWApKkZ1>𝗸𝗺𝘁𝘇 𝗰𝗵𝗮𝗻𝗻𝗲𝗹</a>
 
-• ❣️ <a href=https://github.com/lntechnical2>𝗟𝗡 𝗧𝗘𝗖𝗛𝗡𝗜𝗖</a>
-• ❣️ <a href=https://t.me/Mhd_rzn>𝗠𝗵𝗱_𝗿𝘇𝗻</a>
-• ❣️ <a href=https://youtu.be/GfulqsSnTv4>𝗠𝗼𝗧𝗲𝗰𝗵 𝗬𝗧</a>
-• ❣️ <a href=https://t.me/mr_MKN>𝗠𝗿.𝗠𝗞𝗡 𝗧𝗚</a>
-• ❣️ <a href=https://t.me/GitHub_noob>𝗚𝗶𝘁𝗛𝘂𝗯 𝗡𝗢𝗢𝗕</a>
-• ❣️ <a href=https://t.me/about_jeol>𝙅𝙀𝙊𝙇</a>
+• ❣️ <a href=https://t.me/RED_Rename_file_v2_bot>𝐑𝐄𝐍𝐀𝐌𝐄 𝐛𝐨𝐭 𝘃2😜</a>
+• ❣️ <a href=https://t.me/RED_world_hub_v2_bot>𝐑𝐄𝐃 𝐖𝐨𝐫𝐥𝐝 𝐇𝐮𝐛 𝐯2 𝐛𝐨𝐭 🎬</a>
+• ❣️ <a href=https://t.me/RED_world_hub_v5_bot>𝐑𝐄𝐃 𝐖𝐨𝐫𝐥𝐝 𝐇𝐮𝐛 𝐯5 𝐛𝐨𝐭🚬</a>
+• ❣️ <a href=https://t.me/kmtz_v4>𝗞𝗠𝗧𝗭 𝗚𝗥𝗢𝗨𝗣 ☠️</a>
+• ❣️ <a href=https://t.me/kmtz_channel_v3>𝗞𝗠𝗧𝗭 𝗖𝗛𝗔𝗡𝗡𝗘𝗟</a>
+• ❣️ <a href=https://t.me/KL_2335>🔞𝗔𝗗𝗠𝗜𝗡🔞</a>
 """
